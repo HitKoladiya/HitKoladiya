@@ -2,4 +2,4 @@
 - 👀 I’m interested in Devlopement And Competitive Programming.I Love Problems.
 - 🌱 I’m currently Studying in IT Engineering At Charusat University.
 - 💞️ I’m looking for Intenship.
-- 📫 if you want contact with me,My E-mail is "koladiyahit45@gmail.com".
+- 📫 if you want to contact with me, just mail me at "koladiyahit45@gmail.com".
