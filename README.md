@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HitKoladiya
 - 👀 I’m interested in Devlopement And Competitive Programming.I Love Problems.
 - 🌱 I’m currently Studying in IT Engineering At Charusat University.
-- 💞️ I’m looking for Intenship.
+- 💞️ I’m looking for Intenship/Job.
 - 📫 if you want to contact with me, just mail me at "koladiyahit45@gmail.com".
